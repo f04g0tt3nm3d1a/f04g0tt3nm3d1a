@@ -37,7 +37,9 @@
 <p> - nirvana</p>
 <p> - green day</p>
 <p> - and im slowly getting into misfits</p>
-<h4> ☆ IF YOU LIKE ANY OF THESE PLEASE TALK TO ME!!! I WANNA MAKE FRIENDS!!!</h4
+<h4> ☆ IF YOU LIKE ANY OF THESE PLEASE TALK TO ME!!! I WANNA MAKE FRIENDS!!!</h4>
+<p> (PLEASE INTERACT IF YOU LIKE REGRETEVATOR!!!</p>
+                                                                              
 <br>
 <h1> LINKS </h1>
 <h4> Pinterest</h4>
