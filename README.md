@@ -8,7 +8,8 @@
 <img src="https://i.pinimg.com/736x/12/f1/e4/12f1e4aeaaa4886bb3f7103c518584cd.jpg"
 <br>
 <p> you can call me Vinn or Tovi, idrc man</p>
-<p> He/it/its</p>
+<p> he/it/its</p>
+<P> im gay n trans :P </P>
 <br>
 <H1> ☆ DNI!! ☆ </H1>
 <p> - any type of proshipper</p>
