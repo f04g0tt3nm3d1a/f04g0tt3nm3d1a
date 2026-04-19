@@ -10,6 +10,8 @@
 <p> you can call me Vinn or Tovi, idrc man</p>
 <p> he/it/its</p>
 <P> im gay n trans :P </P>
+<p> c+h freely!</p>
+<p> ill usually have 'w2i' in my name if im afk</p>
 <br>
 <H1> ☆ DNI!! ☆ </H1>
 <p> - any type of proshipper</p>
