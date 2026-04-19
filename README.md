@@ -39,7 +39,7 @@
 <p> - and im slowly getting into misfits</p>
 <h4> ☆ IF YOU LIKE ANY OF THESE PLEASE TALK TO ME!!! I WANNA MAKE FRIENDS!!!</h4>
 <p> (PLEASE INTERACT IF YOU LIKE REGRETEVATOR!!!</p>
-<p> (also where i'm sitting, can we try and make this the regretevator area?</p>
+<p> (also where i'm sitting, can we try and make this the regretevator area?)</p>
                                                                               
 <br>
 <h1> LINKS </h1>
