@@ -17,6 +17,7 @@
 <p> - any type of proshipper</p>
 <p> - obvious but pedos</p>
 <p> - i dont really have a problem with anyone else as long as youre nice</p>
+<p> - extreme hazbin hotel / helluva boss fans, the fandom is weird and idk, just dni</p>
 <H1> ☆ INTERESTS!!! ☆ </H1>
 <h3> main interests</h3>
 <br>
